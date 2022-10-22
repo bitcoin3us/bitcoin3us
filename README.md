@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @bitcoin3us
+- 👀 I’m interested in all things bitcoin
+- 🌱 I’m currently learning to code
+- 💞️ I’m looking to collaborate on gamechangers
+- 📫 Reach me at bitcoin3us@gmail.com
